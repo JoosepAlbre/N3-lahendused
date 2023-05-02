@@ -1,1 +1,1 @@
-# 3.Nädala näidislahendused
+# 3. Nädala näidislahendused
